@@ -1,0 +1,2 @@
+# Bankai
+Anime Meme Coin!
